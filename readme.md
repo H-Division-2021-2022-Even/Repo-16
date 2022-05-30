@@ -7,4 +7,4 @@ This is <strong>Team-16 a.k.a _________</strong> We as aspiring stewards of KLE 
  	<li>Critical Thinking</li>
  	<li>Mental Ability Skill (Aptitude &amp; reasoning)</li>
 </ul>
-India is in need to <strong>Re-establish the education system</strong> and we indeed are to <strong>Modernize the traditional education system.</strong>
+India needs to <strong>Re-establish the education system</strong> and we indeed are to <strong>Modernize the traditional education edifice.</strong>
