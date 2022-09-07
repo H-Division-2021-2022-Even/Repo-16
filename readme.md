@@ -12,6 +12,9 @@
  	<li>Critical Thinking</li>
  	<li>Decision Making</li>
 </ul>
-This crew is <strong>involved in making children</strong> learn to play some <strong>fascinating educational games.</strong> With a sense of excitement and hope, we ensure that children would feel like they are <strong>being improvised</strong> and are<strong> being experts</strong> in their appropriate fields.
+This crew is <strong>involved in making children</strong> learn to play some <strong>fascinating educational games.</strong> With a sense of excitement and hope, we ensure that children would feel like they are <strong>being improvised</strong> and are<strong> being experts</strong> in their appropriate fields.<br><br>
 
-&nbsp;
+
+
+Link: [https://aryabhatiya.com/](https://aryabhatiya.com/) <br><br>
+[Game Reviews and Lederboard](https://aryabhatiya.com/the-maze-board-check-your-brain-efficiency/)
